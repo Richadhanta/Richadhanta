@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **richadhanta23@gmail.com**
 
-- 📄 Know about my experiences (https://drive.google.com/file/d/1fWIiCmYt-_AxU-_Pje6sDpPnUy33rYvU/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1PErGZ3w78VIe1UpnZrSvYgKAw9aRsI88/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
